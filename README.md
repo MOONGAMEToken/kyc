@@ -1,4 +1,4 @@
-#MOONGAME IDO LAUNCHPAD KYC
+# MOONGAME IDO LAUNCHPAD KYC
 MOONGAME IDO LAUNCHPAD KYC was founded in 2021 to combat Scamming activity in the De-centralized Cryptocurrency exchange space.
 
 
